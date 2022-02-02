@@ -1,0 +1,1 @@
+These are our old logo designs. Feel free to modify them in any way but keep in mind the license
